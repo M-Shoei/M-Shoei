@@ -19,12 +19,11 @@ I'm a marketing strategist with a decade of experience across PR, brand communic
 - Brand Development & Messaging
 - Data Analytics & Reporting
 - Stakeholder Communication
-- PR & Media Relations (Japan & APAC)
+- PR & Media Relations 
 
 ## 🌱 Currently...
 - Marketing Coordinator at MYFX Markets (2025–)
 - Previously: Marketing & PR Manager at Plug and Play Japan, PR Lead at Uzabase
-- Learning more about marketing analytics and growth strategies in fintech
 
 ## 📚 Certifications
 - Digital Marketing Professional – Digital Marketing Institute (Sep 2024)
