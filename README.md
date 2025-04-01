@@ -1,7 +1,6 @@
 # Hi there, I'm Megumi 👋
 
-I'm a marketing strategist with 10+ years of experience across brand communications, digital marketing, content strategy, and PR.
-I bring a unique mix of creative storytelling and data-driven execution to every project.
+I'm a marketing strategist with a decade of experience across PR, brand communications, and content strategy—and over 5 years of hands-on expertise in digital marketing execution. I bring a well-rounded perspective that combines creative storytelling with data-driven strategy to deliver impactful, audience-focused campaigns.
 
 ## 🚀 What I Do
 - Plan and execute full-funnel marketing campaigns
